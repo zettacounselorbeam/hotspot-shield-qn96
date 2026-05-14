@@ -1,4 +1,4 @@
-
+automatic Hotspot Shield Service | kill-switch + dedicated-IP offers the most advanced Hotspot Shield service, with kill-switch and dedicated-IP. Ideal for users who value privacy
 
 
 
